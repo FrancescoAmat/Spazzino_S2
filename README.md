@@ -1,2 +1,0 @@
-# Spazzino_S2
-
